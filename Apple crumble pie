@@ -1,0 +1,26 @@
+##Apple crumble pie
+
+#ingredients
+-3 large apples, cut into 1-inch chunks
+-1 Tablespoon unsalted butter, melted
+-3 Tablespoons packed brown sugar
+-1/4 teaspoon ground cinnamon
+-1/8 teaspoon ground nutmeg
+-2/3 cup packed brown sugar
+-1 cup all-purpose flour
+-1 teaspoon ground cinnamon
+-small pinch salt (about 1/16 teaspoon)
+-6 Tablespoons unsalted butter, melted and slightly cooled
+
+#instructions
+-preheat oven to 350°F (177°C)
+-grease a 9-inch pie dish or 9-inch square baking pan with 1 Tablespoon of melted butter
+-chop the apples into 1-inch chunks (1/4 – 1/2 inch thick)
+-mix the apples, 3 Tablespoons of brown sugar, 1/4 teaspoon of cinnamon, and nutmeg together in a large bowl
+-spoon the apple mixture into the greased baking dish
+-mix 2/3 cup of brown sugar, flour, 1 teaspoon of cinnamon, and salt together in a medium bowl using a fork
+-fold in 6 Tablespoons of melted butter into the dry ingredients using a fork
+-keep the mixture as large crumbles and do not over-mix into a paste
+-sprinkle the crumble topping evenly over the apples
+-bake for 32–36 minutes until the topping is lightly toasted and apples are softened
+-remove from the oven and serve warm
